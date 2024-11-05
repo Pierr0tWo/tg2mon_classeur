@@ -7,4 +7,4 @@
 L’avantage du deuxième parcours c’est que une fois arriver à l’école d’ingénieur j’aurais déjà un diplôme et du coup en cas de difficulté lors de l’école d’ingénieur je serais plus sécurisé pour mon avenir, même si en contre partie je ferais un an d’étude en plus.
 
 ### Plan B: 
-je n’en ai pas spécialement mais sinon je ferais des petits boulot du genre dans la restauration ou dans des magasins pour gagner de l’expérience, et à coté je ferais peut-être de la musique en indépendant même si je ne pense pas en faire mon métier plus tard car ça reste après tout une passion. (en gros je sais pas)
+je n’en ai pas spécialement mais sinon je ferais des petits boulot du genre dans la restauration ou dans des magasins pour gagner de l’expérience, et à coté je ferais peut-être de la musique en indépendant même si je ne pense pas en faire mon métier plus tard car ça reste après tout une passion. (du coup je sais pas)
