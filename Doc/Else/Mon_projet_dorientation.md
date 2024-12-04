@@ -3,7 +3,7 @@
 ## Mes projets futurs (metier) 
 
 ### Plan A:
- développeur informatique, plus précisément dans la cybersécurité. Pour se faire je ne sais pas encore spécialement quoi choisir entre faire une prépa et intégrer une école d’ingénieur ou faire un IUT SIO à Lannion ou quelque part en bretagne pour ensuite intégrer encore une fois une école d’ingénieur. 
+ développeur informatique, plus précisément dans la cybersécurité. Pour se faire je ne sais pas encore spécialement quoi choisir entre faire une prépa et intégrer une école d’ingénieur ou faire un IUT SIO option SLAM à Lannion ou quelque part en bretagne pour ensuite intégrer encore une fois une école d’ingénieur. 
 L’avantage du deuxième parcours c’est que une fois arriver à l’école d’ingénieur j’aurais déjà un diplôme et du coup en cas de difficulté lors de l’école d’ingénieur je serais plus sécurisé pour mon avenir, même si en contre partie je ferais un an d’étude en plus. 
 
 ### Plan B:
